@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @PM2p5
-- 👀 I’m interested in Something new
-- 🌱 I’m currently learning Something new
+- 👀 I’m interested in Something NEW
+- 🌱 I’m currently learning Something NEW
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 
